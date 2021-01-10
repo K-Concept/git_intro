@@ -1,2 +1,5 @@
 Kristina Marquez
-8
+marquekr@oregonstate.edu
+orange
+Gorillaz 
+
